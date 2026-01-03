@@ -54,9 +54,6 @@ I specialize in creating scalable, maintainable, and cost-effective mobile solut
 
 I don’t just build apps — **I deliver scalable solutions that save time, cut costs, and accelerate business growth.**
 
-📩 **Reach out** to discuss your next idea or book a free consultation!  
-📧 **Email**: [mayanipriyank0307@gmail.com](mailto:mayanipriyank0307@gmail.com)
-
 ---
 ## 🛠️ Tools & Languages
 
